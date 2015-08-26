@@ -1,0 +1,3 @@
+# Equality Under the Law
+
+Congress shall make no law that applies to the citizens of the United States that does not apply equally to all elected officials, appointed officials, and civilian employees of the federal government. No provision of any law shall serve to exempt any elected official, appointed official, or civilian employee of the federal government from any law or any provision within a law. Elected officials, appointed officials, and civilian employees of the federal government shall enjoy no immunity from law that is not equally granted to all citizens in general.
