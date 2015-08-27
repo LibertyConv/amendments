@@ -1,4 +1,4 @@
-# Bill of Limits on the Authority of this government
+# Bill of Limits on the Authority of the Federal Government
 
 _The purpose of these amendments is to make explicitly clear that this government shall not be involved in certain areas. Each item is enumerated as a separate amendment as states should be free to choose to ratify or not ratify any of these proposals._
 
