@@ -1,4 +1,4 @@
-_Some of the language for this amendment comes from Mark Levin's "An Amendment to Restore the Senate" (The Liberty Amendments). However, the process described by this amendment is largely my own concept._Some
+_Some of the language for this amendment comes from Mark Levin's "An Amendment to Restore the Senate" (The Liberty Amendments). However, the process described by this amendment is largely my own concept._
 
 _The general intent of the amendment is to return the Senate to its original role of representing the states. The process described in Section 2 facilitates the process by involving state governors and forcing the legislatures to approve specific candidates by up-or-down votes._
 
